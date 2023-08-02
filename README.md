@@ -1,2 +1,0 @@
-# Senior Technical Writer
-Motivated and skilled <B>Technical Writer</B> with 8+ years of experience in <i>Technical Documentation, API Documentation, Release Notes and Azure Data Engineer</i>.  Possessing a strong organizational aptitude and a logical approach, I excel in researching technologies and delivering clear and concise product and process information. I am actively seeking a full-time position where I can leverage my expertise and continue enhancing my skills.
